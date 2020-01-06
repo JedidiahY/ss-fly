@@ -20,3 +20,8 @@ flyzy小站交流群：http://t.me/flyzyxiaozhan
 
 ### VPS信息汇总
 [VPS GO](https://www.vpsgo.com)
+
+
+[详情](https://www.textarea.com/shadowsocks/ban-wagong-yijian-dajian-shadowsocks-shadowsocksr-bing-kaiqi-bbr-jiasu-964/)
+
+
